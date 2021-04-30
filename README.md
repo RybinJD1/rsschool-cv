@@ -1,0 +1,1 @@
+[link to cv](https://github.com/RybinJD1/rsschool-cv/blob/gh-pages/cv.md)
