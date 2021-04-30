@@ -1,7 +1,7 @@
 **ALEXEY RYBIN**  
-**Phone:+375257799999**  
-**Email:alyxey.rybin@gmail.com**  
-**Skype:alexfisher**  
+**Phone: +375257799999**  
+**Email: alyxey.rybin@gmail.com**  
+**Skype: alexfisher**  
 
 	Objective
 
